@@ -94,3 +94,6 @@ Id:XXXXXXXX
 ## 📄 Лицензия
 
 Проект распространяется «как есть», без каких-либо гарантий.
+
+
+СКАЧАТЬ ---  https://drive.google.com/file/d/10sqEQNXMKbm0_XtUwDaxqG9rhS9afcED/view?usp=sharing
